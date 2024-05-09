@@ -1,1 +1,1 @@
-HOSTED LINK - https://shakshi2125.github.io/Major_Project/
+HOSTED LINK - https://shakshi2125.github.io/Landing-Page/
